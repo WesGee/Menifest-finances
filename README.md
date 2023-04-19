@@ -1,0 +1,2 @@
+# Menifest-finances
+Money Manifesting
